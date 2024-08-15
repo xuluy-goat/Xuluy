@@ -1,2 +1,0 @@
-# Xuluy
-About me!
